@@ -7,3 +7,4 @@
 - Meu pokémon favorito é o Rowlet, junto de sua linha evolutiva.
 - Meus animais favoritos são gatos e cachorros, mesmo sendo meio contraditório.
             
+           
